@@ -1,2 +1,3 @@
-# owl-spammer
-The tool that i used in literally every raid cuz its fast like shit
+Thanks for buying Owl Spammer,AND REMEMBER DONT FUCKING SKID IT.
+Don't fuck with me and cate...Cate X Woozy OP
+Love u Akane OH SH*T 
